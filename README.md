@@ -91,6 +91,11 @@ KICS Summer Conference 2024 (한국통신학회 하계종합학술발표회), Ju
 | **Universiti Sains Malaysia** | Exchange |
 | **Presbyterian College (USA)** | Language study · 2023 |
 
+**On-campus work-study (Hannam)** · International Exchange Team · Global Business Department Office  
+한남대 교내 근로: 국제교류팀 · 글로벌비즈니스학과 사무실
+
+
+
 **Credentials** · OPIc IH (Sep 2026) · Secondary English Teacher Certificate Grade 2 (Feb 2026) · Computer Specialist Grade 2 (2020)
 
 ---
